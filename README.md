@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @wanted2
 - 👀 I’m interested in **Artificial Intelligence, Machine Learning and Computer Vision**!
-- 🌱 I’m currently learning **Clouds** ☁️
+- 🌱 I’m currently learning **Economics** ☁️
 - 💞️ I’m looking to collaborate on 🤖 ☁️ 🧑‍🎨
 - 📫 [LinkedIn](https://www.linkedin.com/in/tuan-nguyen-anh-brse/)
 
